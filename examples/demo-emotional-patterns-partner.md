@@ -54,7 +54,7 @@ In this guide, you'll walk through three scenes — while dating, inside the rel
 
 The "type" you keep choosing is rarely a person. It's a list of qualities that feel magnetic, and the magnetism is the clue. In analytical psychology, what attracts you most strongly is often a projection: you're drawn to qualities you haven't recognized in yourself.
 
-Jungian psychology calls the inner image the anima or animus — the idealized opposite we each carry. When you meet someone who seems to embody it, the encounter feels fated. The catch: you're partly in love with your own projection, not with the person in front of you.
+Psychology calls this inner image the anima or animus — the idealized opposite we each carry. When you meet someone who seems to embody it, the encounter feels fated. The catch: you're partly in love with your own projection, not with the person in front of you.
 
 *The type you keep choosing is the self you haven't met yet.*
 
@@ -76,7 +76,7 @@ Ask yourself what the intensity is doing for you — and what it's letting you a
 
 **Very often — the pattern was written before you met anyone.**
 
-Children absorb relationship templates long before they date. A parent who was admired but distant, or available but overwhelmed, becomes a template for what love feels like — not what love is. Jungian psychology describes this as an inherited script running beneath your choices.
+Children absorb relationship templates long before they date. A parent who was admired but distant, or available but overwhelmed, becomes a template for what love feels like — not what love is. Psychology describes this as an inherited script running beneath your choices.
 
 The script doesn't mean you're doomed. It means the pull toward a familiar dynamic can outweigh a healthy one, because healthy feels unfamiliar. Breaking it starts with noticing which roles you keep volunteering for.
 
@@ -92,7 +92,7 @@ Name one dynamic from your parents' relationship that shows up in yours. That's 
 
 Every couple fights; the loop is the signal. When the same fight returns with the same heat and the same ending, the surface issue — money, chores, who texted back — is usually standing in for something deeper. The unconscious repeats until it's heard.
 
-Jungian psychology describes this as a complex being triggered: an old emotional bruise that the present moment keeps pressing. You're not just arguing about the dishes; you're arguing about being unseen, undervalued, or abandoned — again.
+Psychology describes this as a complex being triggered: an old emotional bruise that the present moment keeps pressing. You're not just arguing about the dishes; you're arguing about being unseen, undervalued, or abandoned — again.
 
 *The fight you keep having is the conversation you haven't been able to have.*
 
@@ -116,7 +116,7 @@ Take one evening a week apart, doing something only you do. Wholeness is a pract
 
 A partner's annoying habit can genuinely be theirs. But when their flaw makes you feel exposed, inadequate, or furious out of proportion, psychology suggests a projection: the trait bothers you because it mirrors something you haven't accepted in yourself.
 
-Jung called the rejected parts of ourselves the shadow. It's not that your partner is blameless — it's that your reaction to them is partly about you. Unpacking that reaction turns a blame-loop into self-knowledge, and it's the fastest way to stop fighting the same war.
+Psychology calls the rejected parts of ourselves the shadow. It's not that your partner is blameless — it's that your reaction to them is partly about you. Unpacking that reaction turns a blame-loop into self-knowledge, and it's the fastest way to stop fighting the same war.
 
 *The trait that humiliates you in your partner is often the one you're hiding in yourself.*
 
@@ -130,7 +130,7 @@ Pick the flaw that makes you angriest. Ask what it would cost you to admit that 
 
 The one who got away usually got away with a piece of your projection. They carried the image of what could have been, and that image doesn't age, disappoint, or argue. Grieving them feels endless because you're not only grieving a person — you're grieving the self you hoped they would complete.
 
-In Jungian terms, the attachment is an unwithdrawn projection: the part of yourself you invested in them is still out there. Letting go isn't about forgetting them; it's about taking back what you lent.
+In psychological terms, the attachment is an unwithdrawn projection: the part of yourself you invested in them is still out there. Letting go isn't about forgetting them; it's about taking back what you lent.
 
 *You can't move on from a person until you've brought home the part of you they were holding.*
 
